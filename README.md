@@ -1,4 +1,4 @@
-where tf i am
+Broken crayons can still color. 
 
 <!--
 **underthinker/underthinker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
